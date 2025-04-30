@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there ˚ʚ🍓ɞ˚ 𐙚 ̊
 ![J'Banner](https://github.com/user-attachments/assets/6220261d-283f-4f4f-a2d6-602d75a3c8f3)
 
 <!--
